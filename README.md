@@ -21,7 +21,8 @@
 - 初级套餐：月付：￥5.88/月，40G流量/月。
 - 基础套餐：月付：￥12/月，100G流量/月。
 - 
-![image](https://github.com/user-attachments/assets/044528a1-53ad-4cee-8f2e-dfff4fa7e1a8)
+![image](https://github.com/user-attachments/assets/bc3b3238-3821-4999-98c9-cda0da677d38)
+
 
 # - 更多套餐去官网查看.[点击登录官网地址](https://foxtiming.com/#/register?code=yVHmAa6w)
 
