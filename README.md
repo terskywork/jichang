@@ -27,7 +27,7 @@
 # - 更多套餐去官网查看.[点击登录官网地址](https://foxtiming.com/#/register?code=yVHmAa6w)
 
 
-### fscloud机场 
+# fscloud机场 
 # fscloud机场主打性价比高,稳定 - 2026 免费翻墙机场首选
 # [点击登录官网地址](https://dash.fscloud.app/#/register?code=9oT7NNeq)
 
@@ -41,7 +41,7 @@
 **套餐价格：**
 - 免费套餐：月付：￥9.6/月，100G流量/月。
 - 初级套餐：月付：￥13.78/月，400G流量/月。
-- 王者套餐100年
+- 王者套餐包27年
 <img width="304" height="732" alt="image" src="https://github.com/user-attachments/assets/713995d5-e599-452e-bde7-7467d4019dd6" /> 
 <img width="663" height="718" alt="image" src="https://github.com/user-attachments/assets/fa99b180-32cb-47c9-92fb-53bce45fb5ec" />
 
