@@ -26,6 +26,16 @@
 
 # - 更多套餐去官网查看.[点击登录官网地址](https://foxtiming.com/#/register?code=yVHmAa6w)
 
+
+### fscloud机场 
+# fscloud机场主打性价比高,稳定 - 2026 免费翻墙机场首选
+# [点击登录官网地址](https://dash.fscloud.app/#/register?code=9oT7NNeq)
+
+**套餐价格：**
+一个月仅需1元
+<img width="1384" height="719" alt="image" src="https://github.com/user-attachments/assets/8160e614-814c-4190-aa54-65deee50f961" />
+
+
 ### WgetCloud 全球加速 - 2025 稳定翻墙机场首选
 
 - 2025 稳定翻墙机场推荐
