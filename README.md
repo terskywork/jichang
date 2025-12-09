@@ -34,16 +34,19 @@
 **套餐价格：**
 一个月仅需1元
 <img width="1384" height="719" alt="image" src="https://github.com/user-attachments/assets/8160e614-814c-4190-aa54-65deee50f961" />
+# - 更多套餐去官网查看.[点击登录官网地址](https://dash.fscloud.app/#/register?code=9oT7NNeq)
 
 # 69元超稳定机场主打稳定高效 - 2026 免费翻墙机场首选
 # [点击登录官网地址](https://69yun69.com/auth/register?code=oo2dOV)
 
 **套餐价格：**
-- 免费套餐：月付：￥9.6/月，100G流量/月。
-- 初级套餐：月付：￥13.78/月，400G流量/月。
-- 王者套餐包27年
+- 初级套餐：月付：￥9.6/月，100G流量/月。
+- 中级套餐：月付：￥13.78/月，400G流量/月。
+- 王者套餐: 包27年!!!
 <img width="304" height="732" alt="image" src="https://github.com/user-attachments/assets/713995d5-e599-452e-bde7-7467d4019dd6" /> 
 <img width="663" height="718" alt="image" src="https://github.com/user-attachments/assets/fa99b180-32cb-47c9-92fb-53bce45fb5ec" />
+
+# - 更多套餐去官网查看.[点击登录官网地址](https://69yun69.com/auth/register?code=oo2dOV)
 
 
 
