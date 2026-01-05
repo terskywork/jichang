@@ -1,6 +1,6 @@
 # 主打免费薅羊毛
-# 2025 翻墙机场推荐,免费好用以及稳定的VPN以及机场推荐!!!
-2025 年流行的翻墙机场推荐，机场梯子适合已经翻墙很久，掌握了一些翻墙知识的同学。机场一般采用专用的翻墙协议，如 Shadowsocks、ShadowsocksR、V2ray（Vmess）、Trojan 等， 适配于 Clash、Shadowrocket、Quantumult X、Stash、Surge、V2rayN、Surfboard 等多种客户端。翻墙机场**不是VPN，但胜过VPN。**![Clash 翻墙机场推荐](https://clashsub.net/wp-content/uploads/2023/05/%E6%9C%BA%E5%9C%BA%E6%8E%A8%E8%8D%90-4.webp)  
+# 2026 翻墙机场推荐,免费好用以及稳定的VPN以及机场推荐!!!
+2026 年流行的翻墙机场推荐，机场梯子适合已经翻墙很久，掌握了一些翻墙知识的同学。机场一般采用专用的翻墙协议，如 Shadowsocks、ShadowsocksR、V2ray（Vmess）、Trojan 等， 适配于 Clash、Shadowrocket、Quantumult X、Stash、Surge、V2rayN、Surfboard 等多种客户端。翻墙机场**不是VPN，但胜过VPN。**![Clash 翻墙机场推荐](https://clashsub.net/wp-content/uploads/2023/05/%E6%9C%BA%E5%9C%BA%E6%8E%A8%E8%8D%90-4.webp)  
 翻墙机场不同于一键VPN，采用针对GFW开发的翻墙协议，在速度和稳定性方面表现十分优异。需要注册账号**购买订阅**并搭配**第三方软件**使用，下面是各常用平台翻墙软件安装地址。 *注意：你个人的订阅链接中包含连接信息，等同于账号密码，切记不要泄露。若发现自己的订阅套餐流量异常，请即时前往机场网站重置订阅链接。*
 
 - Windows ：[Clash for Windows](https://clashforwindows.me/)
@@ -8,23 +8,33 @@
 - 安卓：[Clash for Android](https://clashandroid.com/)
 - iOS：[Stash - Clash for iOS](https://clashsub.net/clash-for-ios-two-apps/)
 
-2026 好用的翻墙机场 - SS/SSR/V2ray/Trojan 协议梯子
+2026 好用的翻墙机场 - SS/SSR/V2ray/Trojan 协议梯子 主推两个1元机场, 便宜使用有6年了, 其他机场都跑路了,他们还在!
 ---------------------------------------
 
 精选了好用的翻墙机场梯子，支持 Clash、Shadowrocket、Quantumult X、Stash、Surge、V2ray 等多种流行客户端。排名不分先后顺序。建议翻墙者购买月付套餐，满意之后再决定购买更长时间套餐，另外，**一定要有备用的翻墙梯子**，避免完全失联。 
 
-# fscloud机场 /一元机场
+# 主推1 稳定,便宜,性价比高!
 # fscloud机场主打性价比高,稳定 - 2026 免费翻墙机场首选
 # [点击登录官网地址](https://dash.fscloud.app/#/register?code=9oT7NNeq)
 
 **套餐价格：**
 # 有三天免费试用!
-一个月仅需1元
+一个月仅需1元,比一瓶水都便宜!
 <img width="1384" height="719" alt="image" src="https://github.com/user-attachments/assets/8160e614-814c-4190-aa54-65deee50f961" />
 # - 更多套餐去官网查看.[点击登录官网地址](https://dash.fscloud.app/#/register?code=9oT7NNeq)
 
+# 主推2 稳定,便宜,性价比高!
+# 一元机场
+# 一元机场主打性价比高,稳定 - 2026 免费翻墙机场首选
+# [点击登录官网地址](https://xn--4gq62f52gdss.top/#/register?code=CYvaRQDf)
 
-# 狐狸机场主打免费 - 2025 免费翻墙机场首选
+**套餐价格：**
+一个月仅需1元,比一瓶水都便宜!
+<img width="1473" height="666" alt="image" src="https://github.com/user-attachments/assets/8124d165-ff7e-45ec-a44a-8e03a842d924" />
+# - 更多套餐去官网查看.[点击登录官网地址](https://xn--4gq62f52gdss.top/#/register?code=CYvaRQDf)
+
+
+# 狐狸机场主打免费 - 2026 免费翻墙机场首选
 # [点击登录官网地址](https://foxtiming.com/#/register?code=yVHmAa6w)
 
 **套餐价格：**
@@ -38,14 +48,6 @@
 # - 更多套餐去官网查看.[点击登录官网地址](https://foxtiming.com/#/register?code=yVHmAa6w)
 
 
-# 一元机场
-# fscloud机场主打性价比高,稳定 - 2026 免费翻墙机场首选
-# [点击登录官网地址](https://xn--4gq62f52gdss.top/#/register?code=CYvaRQDf)
-
-**套餐价格：**
-一个月仅需1元
-<img width="1384" height="719" alt="image" src="https://github.com/user-attachments/assets/8160e614-814c-4190-aa54-65deee50f961" />
-# - 更多套餐去官网查看.[点击登录官网地址](https://xn--4gq62f52gdss.top/#/register?code=CYvaRQDf)
 
 # 69元超稳定机场主打稳定高效 - 2026 免费翻墙机场首选
 # [点击登录官网地址](https://69yun69.com/auth/register?code=oo2dOV)
