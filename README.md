@@ -34,6 +34,19 @@
 # - 更多套餐去官网查看.[点击登录官网地址](https://xn--4gq62f52gdss.top/#/register?code=CYvaRQDf)
 
 
+# 主推3 69元超稳定机场主打稳定高,建议王者套餐,流量27年有效, 通过每天签到, 每次签到随机1-3G的流量.日积月累,每个月也有将近100G的流量使用. 提供自动签到脚本!
+# [点击登录官网地址](https://69yun69.com/auth/register?code=oo2dOV)
+
+**套餐价格：**
+- 初级套餐：月付：￥9.6/月，100G流量/月。
+- 中级套餐：月付：￥13.78/月，400G流量/月。
+- 王者套餐: 包27年!!!
+<img width="304" height="732" alt="image" src="https://github.com/user-attachments/assets/713995d5-e599-452e-bde7-7467d4019dd6" /> 
+<img width="663" height="718" alt="image" src="https://github.com/user-attachments/assets/fa99b180-32cb-47c9-92fb-53bce45fb5ec" />
+
+# - 更多套餐去官网查看.[点击登录官网地址](https://69yun69.com/auth/register?code=oo2dOV)
+
+
 # 狐狸机场主打免费 - 2026 免费翻墙机场首选
 # [点击登录官网地址](https://foxtiming.com/#/register?code=yVHmAa6w)
 
@@ -47,19 +60,6 @@
 
 # - 更多套餐去官网查看.[点击登录官网地址](https://foxtiming.com/#/register?code=yVHmAa6w)
 
-
-
-# 69元超稳定机场主打稳定高效 - 2026 免费翻墙机场首选
-# [点击登录官网地址](https://69yun69.com/auth/register?code=oo2dOV)
-
-**套餐价格：**
-- 初级套餐：月付：￥9.6/月，100G流量/月。
-- 中级套餐：月付：￥13.78/月，400G流量/月。
-- 王者套餐: 包27年!!!
-<img width="304" height="732" alt="image" src="https://github.com/user-attachments/assets/713995d5-e599-452e-bde7-7467d4019dd6" /> 
-<img width="663" height="718" alt="image" src="https://github.com/user-attachments/assets/fa99b180-32cb-47c9-92fb-53bce45fb5ec" />
-
-# - 更多套餐去官网查看.[点击登录官网地址](https://69yun69.com/auth/register?code=oo2dOV)
 
 
 
