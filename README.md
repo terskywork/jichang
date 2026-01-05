@@ -8,10 +8,21 @@
 - 安卓：[Clash for Android](https://clashandroid.com/)
 - iOS：[Stash - Clash for iOS](https://clashsub.net/clash-for-ios-two-apps/)
 
-2025 好用的翻墙机场 - SS/SSR/V2ray/Trojan 协议梯子
+2026 好用的翻墙机场 - SS/SSR/V2ray/Trojan 协议梯子
 ---------------------------------------
 
 精选了好用的翻墙机场梯子，支持 Clash、Shadowrocket、Quantumult X、Stash、Surge、V2ray 等多种流行客户端。排名不分先后顺序。建议翻墙者购买月付套餐，满意之后再决定购买更长时间套餐，另外，**一定要有备用的翻墙梯子**，避免完全失联。 
+
+# fscloud机场 /一元机场
+# fscloud机场主打性价比高,稳定 - 2026 免费翻墙机场首选
+# [点击登录官网地址](https://dash.fscloud.app/#/register?code=9oT7NNeq)
+
+**套餐价格：**
+# 有三天免费试用!
+一个月仅需1元
+<img width="1384" height="719" alt="image" src="https://github.com/user-attachments/assets/8160e614-814c-4190-aa54-65deee50f961" />
+# - 更多套餐去官网查看.[点击登录官网地址](https://dash.fscloud.app/#/register?code=9oT7NNeq)
+
 
 # 狐狸机场主打免费 - 2025 免费翻墙机场首选
 # [点击登录官网地址](https://foxtiming.com/#/register?code=yVHmAa6w)
@@ -27,14 +38,14 @@
 # - 更多套餐去官网查看.[点击登录官网地址](https://foxtiming.com/#/register?code=yVHmAa6w)
 
 
-# fscloud机场 /一元机场
+# 一元机场
 # fscloud机场主打性价比高,稳定 - 2026 免费翻墙机场首选
-# [点击登录官网地址](https://dash.fscloud.app/#/register?code=9oT7NNeq)
+# [点击登录官网地址](https://xn--4gq62f52gdss.top/#/register?code=CYvaRQDf)
 
 **套餐价格：**
 一个月仅需1元
 <img width="1384" height="719" alt="image" src="https://github.com/user-attachments/assets/8160e614-814c-4190-aa54-65deee50f961" />
-# - 更多套餐去官网查看.[点击登录官网地址](https://dash.fscloud.app/#/register?code=9oT7NNeq)
+# - 更多套餐去官网查看.[点击登录官网地址](https://xn--4gq62f52gdss.top/#/register?code=CYvaRQDf)
 
 # 69元超稳定机场主打稳定高效 - 2026 免费翻墙机场首选
 # [点击登录官网地址](https://69yun69.com/auth/register?code=oo2dOV)
