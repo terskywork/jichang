@@ -47,21 +47,6 @@
 # - 更多套餐去官网查看.[点击登录官网地址](https://69yun69.com/auth/register?code=oo2dOV)
 
 
-# 狐狸机场主打免费 - 2026 免费翻墙机场首选
-# [点击登录官网地址](https://foxtiming.com/#/register?code=yVHmAa6w)
-
-**套餐价格：**
-- 免费套餐：月付：￥0/月，11G流量/月。
-- 初级套餐：月付：￥5.88/月，40G流量/月。
-- 基础套餐：月付：￥12/月，100G流量/月。
-- 
-![image](https://github.com/user-attachments/assets/bc3b3238-3821-4999-98c9-cda0da677d38)
-
-
-# - 更多套餐去官网查看.[点击登录官网地址](https://foxtiming.com/#/register?code=yVHmAa6w)
-
-
-
 
 ### WgetCloud 全球加速 - 2025 稳定翻墙机场首选
 
